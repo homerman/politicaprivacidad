@@ -1,0 +1,2 @@
+# politicaprivacidad
+politica privacidad APP
